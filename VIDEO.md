@@ -1,0 +1,4 @@
+# Video
+    The video was interesting. I've heard of a few things in the video, but the recommended way of raising a child is interesting, as I see a lot of parents setting their child up for disappointment. It has taught me how valuable failure is, and to do more exercises that are just out of my reach so I can have a deeper understanding of any subject that I'm focussing on. The fact that the dropout rate after they changed their way of thinking and learning strategy dropped so much is interesting as it tells us that we're doing something wrong, and we should change so we can give everyone a deeper understanding into every subject.
+
+    Most of the studies outlined a problem where most of us set ourselves up for failure one way or another, by over correcting for the past where other people will set you up for failure. It will certainly be interesting using these strategies for this class and for the future.
