@@ -1,4 +1,4 @@
-# Thoughts about the class
+# Thoughts about the class (April 30th 2022)
 The class was understandable. Although the parts of the class that involved command prompts were a bit hard to follow, which was made worse with the differences between mac and windows. The enthusiasm for the subject definitely help with the understanding of the class as it motivates me to learn the subject. I appreciate the effort you put into this class.
 
 # Notes
